@@ -1,0 +1,1 @@
+# fervent-a-strategic-prayer-battle-plan
